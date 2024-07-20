@@ -13,7 +13,7 @@ Hello 👋
 
 - 📫 How to reach me **amusatabdullahi2004@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me: on WhatsApp 2347043283600</h3>
 <p align="left">
 </p>
 
